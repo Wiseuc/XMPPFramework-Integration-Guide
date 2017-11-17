@@ -2,7 +2,19 @@
 
 ----
 
+原创不易，请多支持! --江海
 
+
+GitHub：https://github.com/Wiseuc
+
+
+CSDN： http://blog.csdn.net/wiseuc_jianghai
+
+QQ：   744235238
+
+Email：wiseuc_jianghai@163.com
+
+欢迎👏志同道合的朋友们前来交流！
 
 
 ###资源
