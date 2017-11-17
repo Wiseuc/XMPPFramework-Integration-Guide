@@ -14,7 +14,7 @@ QQ：   744235238
 
 Email：wiseuc_jianghai@163.com
 
-欢迎👏志同道合的朋友们前来交流！
+🎁后期将会推出`wiseuc_IM_IOS.a`SDK进行商业推广。欢迎👏志同道合的朋友们前来交流！
 
 
 ###资源
